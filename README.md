@@ -18,3 +18,8 @@
 Not sure what's broken right now so this wont be fully released yet
 
 This update contains some random un-used & un-finished code that will be removed in the next update.
+
+
+# LUMBER TYCOON 2 - HOW TO DUPLICATE ANYTHING! NEW METHOD WORKS 2024 
+
+https://youtu.be/M1r5qB0scDM?si=ZVEM6yk8LOJkU578
